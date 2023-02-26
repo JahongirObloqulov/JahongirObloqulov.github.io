@@ -1,1 +1,1 @@
-# JahongirObloqulov.github.io
+# https://JahongirObloqulov.github.io
